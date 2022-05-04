@@ -9,8 +9,9 @@ Des questions lui viennent alors à l'esprit :
 
 Shiro no kumo ne pouvait pas voyager car son nom était recalé à l'aéroport. Pourtant c'était son rêve d'aller voyager partout dans le monde et surtout d'aller manger dans un **vrai** Macdo américain.
 >Les Macdo japonais ne sont que des copies et sont de mauvais goût
-disait-il à quiconque luidemandais.
-Sont Top 3 des Macdo était le suivant :
+
+disait-il à quiconque lui demandais.
+Son Top 3 des Macdo était le suivant :
 1.Américains
 2.Européens
 3.Japonnais
