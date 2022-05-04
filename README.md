@@ -15,3 +15,9 @@ Son Top 3 des Macdo était le suivant :
 1.Américains
 2.Européens
 3.Japonnais
+
+Dans son malheur, il se refugia dans la nourriture. Il mangea tellement de MacDo qu'il finit par en devenir un. C'est alors qu'en le voyant manger, le clown Donald lui apparut et dit :
+> Uh uh uh mon petit blanc au gros ventre, regarde-moi, je suis pas meilleur que toi, mais on se rue pour manger dans mon tieks. Que dirais-tu de rejoindre ma bande.
+
+Shiro no Kumo, enfin, **découvrit sa raison de vivre** !
+
