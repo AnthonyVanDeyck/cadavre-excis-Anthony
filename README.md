@@ -21,3 +21,6 @@ Dans son malheur, il se refugia dans la nourriture. Il mangea tellement de MacDo
 
 Shiro no Kumo, enfin, **découvrit sa raison de vivre** !
 
+Shiro no Kumo décéda malheureusement peu de temps apres la propal. Et oui, le Do Mac lui avait filé le cancer. Manger sain, c'est manger bien. Et oui, aussi simple que ca. **Ca te dis de DL l'extension "Bien mangé 5 fruits et légumes par jour?"**
+
+Bah tu feras ca **apres que j'ai fini de raconter mon histoire.**
